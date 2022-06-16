@@ -1,1 +1,1 @@
-https://yukkalo.github.io/fud3m674
+https://yukkalo.github.io/fr279t2i
